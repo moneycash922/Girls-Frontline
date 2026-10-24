@@ -233,4 +233,4 @@ Girls' Frontline 2: Exilium is offered as a complete free version, with all feat
 Download Girls' Frontline 2: Exilium today and experience the thrill of tactical combat in a beautifully crafted anime world!
 
 ---
-**Last updated:** 2026-10-24 10:38:13 UTC
+**Last updated:** 2026-10-24 14:22:24 UTC
